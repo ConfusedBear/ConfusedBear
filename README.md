@@ -1,4 +1,4 @@
-### Hi there 👋
+### Have A Nice Day 🐈🐈🐈
 
 <!--
 **ConfusedBear/ConfusedBear** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
